@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Cuprum2.github.io/rsschool-cv/cv
